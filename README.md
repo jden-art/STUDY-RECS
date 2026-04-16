@@ -1,4 +1,4 @@
-# geenral goal
+# General goal
 
 ### **General Goal & Vision**
 
